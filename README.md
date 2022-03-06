@@ -1,2 +1,1 @@
-# snippets
-some rep i made for posting snippets idk.
+idk i was bored.
